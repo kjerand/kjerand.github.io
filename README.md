@@ -1,3 +1,1 @@
-# kjerand.github.io
-
-Hallo
+kjerand.evje@hotmail.com
