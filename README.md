@@ -6,6 +6,8 @@ Kontakt meg:
 
 
 ***Wordle Norge***
+
+
 **Privacy Policy**
 
 Kjerand Evje built the Wordle Norgw app as a Free app. This SERVICE is provided by Kjerand Evje at no cost and is intended for use as is.
