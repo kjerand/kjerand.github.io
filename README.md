@@ -2,8 +2,6 @@
 
 Kontakt meg:
 - kjerand.evje@outlook.com
-- +47 941 86 355
-
 
 ***Wordle Norge***
 
